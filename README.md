@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @lsavkina55
-- 👀 I’m interested in ...love
-- 🌱 I’m currently learning .life..
-- 💞️ I’m looking to collaborate on ..friends.
-- 📫 How to reach me here...
-- 😄 Pronouns: .fun..
+me- 👋 Hi, I’m @lsavkina55
+- 👀 I’m interested in .friends..love
+- 🌱 I’m currently learning .good life..
+- 💞️ I’m looking to collaborate on real ..friends.
+- 📫 How to reach me here. by email..
+- 😄 Pronouns: .fun..and luck
 - ⚡ Fun fact: .i am 68 y old..
 
 <!---
